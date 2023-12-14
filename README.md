@@ -1,0 +1,2 @@
+- lack of profit (lack of expense sheet)
+- not optimized
